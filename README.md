@@ -14,7 +14,6 @@ Aspiring statistician and data scientist with strong expertise in statistical mo
 Education
 
 B.Sc. in Statistics, Begum Rokeya University, Rangpur
-[Year of Graduation]
 
 
 
